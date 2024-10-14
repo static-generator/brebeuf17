@@ -15,3 +15,5 @@ Social Media
 - [Facebook](https://www.facebook.com/sofia.encinas.10420)
 - [Instagram](https://www.instagram.com/sofiaraine.encinas/)
 
+Spotify Playlist
+- [Old Hits](https://open.spotify.com/playlist/5qhNNZmxtQqbZz7s5NAGDp?si=wpKLMDrYQ2qfAW_m3FOMSg)
